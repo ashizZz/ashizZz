@@ -1,6 +1,6 @@
 # ashizZz | Threat Researcher 🛡️
 
-[**X**](https://x.com/zz_ashi) • [**Medium**](https://medium.com/@ashishbogati098)
+[**Threat Feed**](https://www.ashishbogati.com.np/StayUpdated) • [**Portfolio**](https://www.ashishbogati.com.np) • [**Medium**](https://medium.com/@ashishbogati098) • [**X**](https://x.com/zz_ashi)
 
 ---
 
